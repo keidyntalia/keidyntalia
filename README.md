@@ -8,7 +8,7 @@ I LOVE MEETING PEOPLE AND INTERACTING BUT I AM SUPPPPPER AWKWARD AND HAVE A TERR
 
 IM BASICALLY ALWAYS ONLINE
 
-note that i often leave areas to hang out w my irls since i prioritize them,,,,, sorry!
+note that i often leave areas to hang out w my irls since i prioritize them,,,,, sorry! #iloveuseepsquad...
 
 also warning im fairly mentally unstable so tell me if im getting mean! (￣▽￣)
 
