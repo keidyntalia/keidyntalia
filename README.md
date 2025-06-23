@@ -2,17 +2,17 @@
 
                                    MY NAME IS KEIDYN OR TSU!! 🐇
 
-SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, HISTORY, BEARS, THE OCEAN, POKEMON,  PJSK,  PANCAKES,  PERSONA,  AND THE SNOW!!!!!!
+𐔌 SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, HISTORY, BEARS, THE OCEAN, CULTURE, POKEMON,  PJSK,  PANCAKES,  PERSONA,  AND THE SNOW!!!!!!
 
-I LOVE MEETING PEOPLE AND INTERACTING BUT I AM SUPPPPPER AWKWARD AND HAVE A TERRIBLE GHOSTING HABIT SO IM AWFUL TO B AROUND
+𐔌 I LOVE MEETING PEOPLE AND INTERACTING BUT I AM SUPPPPPER AWKWARD AND HAVE A TERRIBLE GHOSTING HABIT SO IM AWFUL TO B AROUND
 
-IM BASICALLY ALWAYS ONLINE
+𐔌 IM BASICALLY ALWAYS ONLINE
 
-note that i often leave areas to hang out w my irls since i prioritize them,,,,, sorry! #iloveuseepsquad...
+𐔌 note that i often leave areas to hang out w my irls since i prioritize them,,,,, sorry! #iloveuseepsquad...
 
-also warning im fairly mentally unstable nd bpd kicks my ass a lot so tell me if im getting mean! (￣▽￣)
+𐔌 also warning im fairly mentally unstable nd bpd kicks my ass a lot so tell me if im getting mean! (￣▽￣)
 
-i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
+𐔌 i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
 
                         i loooooooooooove and am canada hetalia😁❤️ (raise ur hand if u gaf)
 
