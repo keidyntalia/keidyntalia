@@ -14,7 +14,7 @@ also warning im fairly mentally unstable nd bpd kicks my ass a lot so tell me if
 
 i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
 
-                                                     i loooooooooooove and am canada hetalia😁❤️
+                                                     i loooooooooooove and am canada hetalia😁❤️ (raise ur hand if u gaf)
 
 
 
