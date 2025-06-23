@@ -1,8 +1,8 @@
+
+
 MY NAME IS KEIDYN OR TSU!! 🐇
 
-
-
-SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, THE OCEAN, POKEMON, PJSK, PANCAKES, AND THE SNOW!!!!!!
+SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, BEARS, THE OCEAN, POKEMON, PJSK, PANCAKES, AND THE SNOW!!!!!!
 
 I LOVE MEETING PEOPLE AND INTERACTING BUT I AM SUPPPPPER AWKWARD AND HAVE A TERRIBLE GHOSTING HABIT SO IM AWFUL TO B AROUND
 
@@ -12,4 +12,8 @@ note that i often leave areas to hang out w my irls since i prioritize them,,,,,
 
 also warning im fairly mentally unstable so tell me if im getting mean! (￣▽￣)
 
-![JPEG image](https://github.com/user-attachments/assets/a32280ed-0cb7-4402-b0f4-ed995d61f8cc)
+i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
+
+i loooooooooooove and am canada hetalia😁❤️
+
+![JPEG image](https://github.com/user-attachments/assets/fd430360-2469-4a69-b799-666cf84059be)
