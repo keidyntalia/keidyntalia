@@ -1,6 +1,6 @@
 ![JPEG image](https://github.com/user-attachments/assets/fd430360-2469-4a69-b799-666cf84059be)
 
-MY NAME IS KEIDYN OR TSU!! 🐇
+                                                          MY NAME IS KEIDYN OR TSU!! 🐇
 
 SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, HISTORY, BEARS, THE OCEAN, POKEMON,  PJSK,  PANCAKES,  PERSONA,  AND THE SNOW!!!!!!
 
@@ -14,7 +14,7 @@ also warning im fairly mentally unstable nd bpd kicks my ass a lot so tell me if
 
 i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
 
-i loooooooooooove and am canada hetalia😁❤️
+                                                     i loooooooooooove and am canada hetalia😁❤️
 
 
 
