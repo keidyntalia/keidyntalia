@@ -14,6 +14,8 @@
 
 𐔌 i WILL follow u if i seem cool i am VERY multifandom and a glazer of anyone i think is awesome. heh.
 
+𐔌 not a weirdo  i jsut want to be friends with and nice to everyone ok......Can people stop assumign things about me pls.;
+
                         i loooooooooooove and am canada hetalia😁❤️ (raise ur hand if u gaf)
 
 
