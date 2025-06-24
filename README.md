@@ -1,6 +1,6 @@
 ![JPEG image](https://github.com/user-attachments/assets/fd430360-2469-4a69-b799-666cf84059be)
 
-                                   MY NAME IS KEIDYN OR TSU!! 🐇
+                                   MY NAME IS KEIDYN OR TSU!! 🐇  (signing socials would be appreciated)
 
 𐔌 SOME OF MY FAVORITE THINGS ARE HETALIA, MY FRIENDS, BUNNIES, HISTORY, BEARS, THE OCEAN, CULTURE, POKEMON,  PJSK,  PANCAKES,  PERSONA,  AND THE SNOW!!!!!!
 
